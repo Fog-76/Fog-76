@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @Fog-76 小黄人
+- 👀 welcome to my first perspective
